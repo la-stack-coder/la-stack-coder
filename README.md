@@ -8,7 +8,4 @@ ola, bem vindo ao meu perfil
 
 - Você pode entrar em contato comigo 📫
   00001135561436sp@al.educacao.sp.gov.br
-
-- e aqui 📫
-
-- @j_s0uzaa
+  
